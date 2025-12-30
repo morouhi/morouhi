@@ -36,8 +36,7 @@ I work with clients worldwide to create **modern web applications**, **mobile ap
 
 ## 🔗 Connect with me
 - LinkedIn: https://linkedin.com/in/morouhi  
-- Instagram: https://instagram.com/YOUR_INSTAGRAM  
-- Website: https://accura-soft.com  
+- Instagram: https://instagram.com/morouhi  
 
 ---
 
